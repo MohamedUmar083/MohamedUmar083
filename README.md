@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://mohamedumar.netlify.app/](https://mohamedumar.netlify.app/)
 
-- 📫 How to reach me **mohamedumars083@gmail.com**
+- 📫 How to reach me **umarmohd777@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
